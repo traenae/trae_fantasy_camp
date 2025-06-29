@@ -1,0 +1,1 @@
+[[Clairmon_Theodore Foxwright|Ted]] (Fighter), [[Clairmon_Jillian Foxwright|Jill]] (Archer), [[Clairmon_Kalvin Oxwain|Kal]] (Trapper), [[Clairmon_Clairice Goldwin|Clair]] (Healer) are on a mission to hunt deer, rabbits, quail, and pheasant in the nearby forest. The meat will be used for a holiday feast and leftovers distributed to the needy. 
