@@ -1,0 +1,1 @@
+Lonshire is a fief in the duchy of [[Onyx]], in the kingdom of [[Euolan|Euolan]]. [[Chesserlon|Count Chesserlon]] is the vassal in charge of Lonshire.

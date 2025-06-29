@@ -1,0 +1,1 @@
+Late king of [[Euolan|Euolan]].
